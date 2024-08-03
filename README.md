@@ -4,7 +4,6 @@
 - 💞️ I’m looking to collaborate on hackthons,open source projects, innovative tech solutions 
 - 📫 How to reach me email, linkedin, instagram, twitter
 - https://www.instagram.com/__.harshareddy.___?igsh=MTNhcjlsNGhyM3Jxag==
-- harshareddy1923@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact:Exploring new technologies and building things, which makes them natural tinkerers and innovators in fields like coding and engineering.
 - 
