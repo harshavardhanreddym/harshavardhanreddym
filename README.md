@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Front-end technologies,Java,Python,Data Structures & Algorithms,DBMS,etc..,
 - 💞️ I’m looking to collaborate on hackthons,open source projects, innovative tech solutions 
 - 📫 How to reach me email, linkedin, instagram, twitter
-- https://www.instagram.com/harshavreddy._?igsh=MTNhcjlsNGhyM3Jxag==
+- https://www.instagram.com/i_harsha.reddyyy?igsh=b3N5czB4dXdlMmtp
 - 😄 Pronouns: he/him
 - ⚡ Fun fact:Exploring new technologies and building things, which makes them natural tinkerers and innovators in fields like coding and engineering.
 - 
